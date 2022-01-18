@@ -33,3 +33,11 @@ Hearing a knock at the door, Jennifer went downstairs to answer it. To her surpr
 ![image-20211212221714304](./img/image-20211212221714304.png)
 
 [Making their](https://www.deviantart.com/khooza/art/Jennifer-Growth-Spurt-43-880642310) way inside, Tom and Jennifer decide to get some coffee while making plans for the day. Jennifer asked Tom to ask to grab the coffee as she got the pot ready. Now that Tom was taller, he was confident that he could reach it directly. To his surprise, the bag was farther back than it was initially. Jennifer came up behind him and wrapped her arm around him, and grabbed the bag.
+
+
+
+## Jennifer Growth Spurt 44
+
+<img src="./img/image-20211212221812006.png" alt="image-20211212221812006" style="zoom:80%;" />
+
+[Sitting down](https://www.deviantart.com/khooza/art/Jennifer-Growth-Spurt-44-880833949) with their coffee, Jennifer and Tom discuss how much Tom had grown since she left. It was clear to Jennifer that Tom put in a lot of time working out, and his hard work had paid off. Curious to see how strong he was now, she invited him to come to her private gym so they could work out together and she could see his progress for herself.
